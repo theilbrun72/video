@@ -1,6 +1,7 @@
 # 1XBet App Download 2025 - Full Guide for Android & iOS Apps Download Promo Code : TIYA
 
 The **1XBet App** is a sports betting mobile app developed by 1xBet BD and is available for download on Android and iOS mobile devices **free in Bangladesh**. The APK file is tailored for the Bangladeshi market, offering a vast selection of cricket betting options, support for the Bengali language, and games optimized for players in Bangladesh.
+# [1XBet App Download](https://tinyurl.com/45sub8kc)
 
 We’ve assembled a team of skilled developers to create **the most effective betting app** for mobile cricket betting and casino games in Bangladesh. By downloading the latest version of the 1Xbet mobile app, you’ll enjoy:
 
@@ -16,7 +17,7 @@ We guarantee a premium mobile betting experience whether you're using Android or
 ## 📱 1Xbet App Download APK for Android
 
 The 1Xbet application for Android is free and easy to install. To download the 1Xbet.apk file, follow these steps:
-
+# [1XBet App Download](https://tinyurl.com/45sub8kc)
 1. Go to the official 1XBet website.
 2. Locate and click on the “App” section.
 3. Scroll down and click on the **Android** download button.
